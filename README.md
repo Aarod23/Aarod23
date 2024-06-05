@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aarod23
+- 👀 I’m interested in coding and track & field
+- 🌱 I’m currently learning Java, JavaScript, Ruby, and C++
+- 📫 How to reach me: I am on discord user is @aarod. chat with me!
+- 😄 Pronouns: He/Him
